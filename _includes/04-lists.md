@@ -1,5 +1,7 @@
+## Hobbies
+
 * Code
 * Running
-* Dance
+* Yoga
 * Meditate
-* Sex
+* Read
